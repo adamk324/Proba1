@@ -4,4 +4,4 @@
 #### ez a purhab negyedik  github oldala
 ##### ez a purhab ötödik  github oldala
 ###### ez a purhab hatodik github oldala
-## a krémsajt finom de ne menj a purhab.com ra.
+## a krémsajt finom de! a krémsajt drága
